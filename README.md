@@ -5,6 +5,7 @@
 2. https://fengloug.com 可用
 3. https://fenglouge.org 可用
 4. https://fenglouge.top 可用
+5. https://fenglouge8.com 可用
 
 ### 请务必收藏我们Github的防封地址：
 https://fenglou.github.io
